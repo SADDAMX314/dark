@@ -1,0 +1,2 @@
+# dark
+ARE U 18+ THEN GET COMMANDS
